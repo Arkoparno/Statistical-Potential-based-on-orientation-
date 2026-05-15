@@ -1,1 +1,0 @@
-# Statistical-Potential-based-on-orientation-
